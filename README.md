@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **abhiikk16@gmail.com**
 
-- ⚡ Fun fact **Java is Funnnn !!!!**
+- ⚡ Fun fact **Java is Funnn !!!!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
